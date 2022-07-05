@@ -1,1 +1,1 @@
-# [Currículo - Bruno Duarte.pdf](https://github.com/bduarte10/Resume/files/9046628/Curriculo.-.Bruno.Duarte.pdf)
+https://github.com/bduarte10/Resume/blob/main/Curr%C3%ADculo%20-%20Bruno%20Duarte.pdf
